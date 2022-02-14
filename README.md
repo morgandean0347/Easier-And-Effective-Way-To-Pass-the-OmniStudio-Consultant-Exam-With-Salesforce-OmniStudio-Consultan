@@ -1,0 +1,1 @@
+# Easier-And-Effective-Way-To-Pass-the-OmniStudio-Consultant-Exam-With-Salesforce-OmniStudio-Consultan
